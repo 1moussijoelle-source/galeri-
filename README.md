@@ -1,1 +1,1 @@
-# galeri-
+# galeriá
